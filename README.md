@@ -1,4 +1,7 @@
-### Hi there 👋
+### Wassup 👋
+- 🌱 [Twitch](https://www.twitch.tv/shadowdedulet) 🌱
+- 👯 [BootyAss](https://bootyass.github.io/Files) 👯
+- 😄 [Instagram](https://www.instagram.com/ShadowDedulet/) 😄
 
 <!--
 **BootyAss/BootyAss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
