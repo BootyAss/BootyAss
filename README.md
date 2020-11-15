@@ -1,4 +1,6 @@
 ### Wassup 👋
+# I'm ShadowDedulet - member of BootyAss  
+
 - 🌱 [Twitch](https://www.twitch.tv/shadowdedulet) 🌱
 - 👯 [BootyAss](https://bootyass.github.io/Files) 👯
 - 😄 [Instagram](https://www.instagram.com/ShadowDedulet/) 😄
